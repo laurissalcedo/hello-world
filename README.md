@@ -1,2 +1,3 @@
 # hello-world
 Assigment
+My name is Laura Salcedo Maso, I’m 18 years old, and I live in Bogotá, Colombia. I live with my mom, with my three younger siblings and with my beautiful dog. I love dogs, also I love reading and watch movies and series and I like learn languages. My major is Computer Programming, I didn’t know nothing about it, but since I start study it I realized I love work with computers and I really like how I’m studying, this is a big opportunity for me, I have a lot of goals and I think that this is just the start of everything. This is my first year, and my second semester in BYU. I’m very excited for this class.
